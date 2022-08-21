@@ -1,1 +1,1 @@
-# Blessy_gitquest
+# Algo marketing strategy
